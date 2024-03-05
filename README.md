@@ -6,5 +6,5 @@
 
 📚 Outside of the classroom, I like to explore new technologies, contribute to open-source projects, and share my programming experiences. I'm always on the lookout for new challenges and learning opportunities.
 
-📫 If you'd like to learn more about me or what I'm working on, feel free to reach out to me at [email@example.com] or follow me on [Twitter, LinkedIn, etc.]. I'm excited to connect and share our passion for programming and music!
+📫 If you'd like to learn more about me or what I'm working on, feel free to reach out to me at elhallaouiyassir@gmail.com or follow me on Instagram @_.yass.irr_. I'm excited to connect and share our passion for programming and music!
 
